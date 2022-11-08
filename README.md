@@ -1,5 +1,7 @@
 ### Hi there 👋
-** My name is yijing🌷
+**My name is yijing🌷**
+
+Today is November 8. On this day, I am hangover and write down these words.
 
 
 
