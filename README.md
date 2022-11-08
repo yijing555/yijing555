@@ -5,7 +5,7 @@
 
 
 
-According to my major, I should be a graphic designer, but I am determined to be an artist.☘️I'm quite crazy to making installations and do 
-
+According to my major, I should be a graphic designer, but I am determined to be an artist.☘️
+Now I'm very interested in making devices and shooting experimental videos!
 ### I’m currently working on strive for equality between men and women.💥
 
