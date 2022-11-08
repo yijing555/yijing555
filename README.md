@@ -1,7 +1,7 @@
 ### Hi there 👋 你好
 (Today is November 8. On this day, I am hangover and write down these words.🍻)
 
-**My name is yijing 🌷 ** **I am from CHINA.**我来自中国
+**My name is yijing 🌷** **I am from CHINA.我来自中国**
 
 
 
